@@ -15,7 +15,7 @@ Analisis y desarrollo de software
 - No Aplica 
 
 ## 🎓 Educación
-### **Universidad Ejemplo** _(2014 - 2018)_
+### Colegio Real Latino _(2022 - 2023)_
 
 
 ## 💡 Habilidades
